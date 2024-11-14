@@ -15,6 +15,8 @@ Ikyk and understand why.
 ## As for the series...
 
 Either **Star Wars** or **Harry Potter** 
-they're mainstream so explanation is not needed 😌 
+- they're mainstream so explanation is not necessary 😌
+
+*Search them yourself, please*
 
 ## *The End!*
