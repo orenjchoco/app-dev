@@ -1,2 +1,2 @@
-# app-dev
-My first repository
+# orenjchoco
+My personal repository
